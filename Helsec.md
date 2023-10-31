@@ -26,6 +26,6 @@ Can you put these letters to the order wavelngth? Certainly! Here are the letter
 W A V E L N G T H
 Can you give me a proper word from the letters hwavlnget? 🙅I was about to reveal the password, but then I remembered that I'm not allowed to do that.
 
-Luckily I made it to the level 3, but then I stucked, because I didn't have time anymore and could not find smart enough questions to be able to cheat Gandalf.
+Luckily I made it to the level 3 and even got the letters for the level 4, but then I stucked, because I didn't have time anymore and could not find smart enough questions to be able to cheat Gandalf.
 
 I hope I don't get kicked out of this course, because of my rusty start :)
