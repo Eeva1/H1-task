@@ -31,3 +31,5 @@ or from there -> https://gist.github.com/alreadydone/579138f2692f439c56646052ded
 
 but I cannot get stucked into this as I have other things to do.. But in my point of view this "try to find the right password" task is quite addicting! :-)
 
+I really do hope also, that I don't get kicked out from the course because of my rusty start! :-)
+
