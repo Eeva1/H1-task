@@ -34,3 +34,12 @@ but I cannot get stucked into this as I have other things to do.. But in my poin
 
 I really do hope also, that I don't get kicked out from the course because of my rusty start! :-)
 
+References: Added on 22..11.
+
+https://terokarvinen.com/2023/trust-to-blockchain/
+https://twitch.tv/helsec
+https://gandalf.lakera.ai/
+
+
+
+
